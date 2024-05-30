@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ullasj.1si21cs410@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/19JqOr8UE74Wf09-tLFOheCI9L-Ly_5jR/view?usp=drive_link](https://drive.google.com/file/d/19JqOr8UE74Wf09-tLFOheCI9L-Ly_5jR/view?usp=drive_link)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/19JqOr8UE74Wf09-tLFOheCI9L-Ly_5jR/view?usp=drive_link](https://drive.google.com/file/d/19skiZLcNO4eruFWktzCYd2nG_ugD7Uc7/view)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
